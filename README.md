@@ -1,6 +1,7 @@
-[![MasterHead](https://thumbs.gfycat.com/TiredRipeFennecfox-size_restricted.gif)](https://hiteshlko1.io)
 <h1 align="center">Hi 👋, I'm Hitesh Verma</h1>
 <h3 align="center">An Enthusiastic Data Scientist from India</h3>
+
+[![MasterHead](https://thumbs.gfycat.com/TiredRipeFennecfox-size_restricted.gif)](https://hiteshlko1.io)
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=hiteshlko1&label=Profile%20views&color=0e75b6&style=flat" alt="hiteshlko1" /> </p>
 
