@@ -1,4 +1,4 @@
-[![MasterHead](https://miro.medium.com/max/1400/1*B-_4d9kZpa8CCmuin61UMw.gif)]
+[![MasterHead](https://thumbs.gfycat.com/TiredRipeFennecfox-size_restricted.gif)](https://hiteshlko1.io)
 <h1 align="center">Hi 👋, I'm Hitesh Verma</h1>
 <h3 align="center">An Enthusiastic Data Scientist from India</h3>
 
